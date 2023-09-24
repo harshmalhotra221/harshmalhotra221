@@ -2,5 +2,5 @@
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently learning Full Stack Development
 - 📫 How to reach me , you can email me at harshmalhotra951@gmail.com
-- 💻 I am actively looking for jobs for the role of SD.
+- 💼 With 1 year of professional experience, seeking new opportunities.
 - 📌 Linkedin https://www.linkedin.com/in/harsh-malhotra-666371152/
